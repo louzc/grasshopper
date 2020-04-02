@@ -1,2 +1,4 @@
 # grasshopper
-Welcome! know a little about VB
+Welcome you! just know a little about VB6.0
+You can also visit bilibili to view my lastest dynamic at space.bilibili.com/422573494.
+THINKS!!
